@@ -1,0 +1,1 @@
+# 110000-Norwegian-Bible-Sermons-Parallel-Commentaries
